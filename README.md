@@ -1,1 +1,0 @@
-# turtle-A-w-octagon
